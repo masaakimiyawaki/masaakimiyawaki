@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @masaakimiyawaki
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+-📫私に連絡する方法..。
+お世話になります。
+っp開放。
+[印刷]して、終了を確認してください。
+--->
